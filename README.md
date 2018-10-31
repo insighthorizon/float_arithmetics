@@ -1,0 +1,1 @@
+http://www.binaryconvert.com/result_double.html?decimal=048046048048053
